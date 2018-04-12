@@ -1,6 +1,6 @@
 # HATD-token
 It is an innitiative of Hope for Afica's transformation & development
-Looking ito Africa's histiry, potential and future
- @HATD, life is our ultimate asset! 
- Health and Education are our high priority. 
- That is why we work on African development plan
+Looking into Africa's history, potential and future
+Health and Education are our high priority. 
+Afirican Human settlement infrastrature 
+ @HATD, life is our ultimate asset for Africans and globally! 
